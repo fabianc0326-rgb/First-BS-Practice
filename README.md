@@ -1,4 +1,4 @@
 # First-BS-Practice
-I'm just practicing, don't mind me
+fuck you
 I am ur mom.
 I am learning Git.
